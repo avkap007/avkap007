@@ -9,6 +9,6 @@
 ___
 
 🌀 2025 is my year of marketing myself — so here’s some TMI:
-- 🌏 Left India at 19 and have called BC home ever since — ready for the next adventure 🌃
+- 🌏 Left India at 19 and have called BC home ever since — ready for the next adventure (NYC pls) 🌃
 - 🧠 I bring a mix of web development, product management, and data analysis to the table
 - 🌇  My dream is to work in nyc 🗽 and also to build my own company <3
